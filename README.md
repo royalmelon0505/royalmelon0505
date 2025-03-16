@@ -4,7 +4,9 @@ I am currently a 2rd-year master student at [Tsinghua University](https://www.ts
 
 Previously, I obtained my bachelor degree in Automation(Control Science) from [Zhejiang University](https://www.zju.edu.cn/)
 
-If you have any problem, feel free to drop me an email at [THU](gjz23@mails.tsinghua.edu.cn) or [Google](jzguo1503@gmail.com)
+
+[Email](gjz23@mails.tsinghua.edu.cn)
+[Google Scholar](https://scholar.google.com/citations?user=pWLqZnoAAAAJ)
 
 ## News
 
